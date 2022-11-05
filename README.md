@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DraculaGaming
+- 👋 Hi, I’m @Drac
 - 👀 I’m interested in coding... and in music as well!
 - 🌱 I’m currently looking around this place and getting used to being here.
 - 💞️ I’m looking to collaborate on BandLab!
